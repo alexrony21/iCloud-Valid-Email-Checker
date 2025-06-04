@@ -27,8 +27,7 @@
 
 ## 📩 Purchase & Contact
 
-To buy credits or for more information, contact me on Telegram:  
-👉 [@thepythoncode97](https://t.me/thepythoncode97)
+To buy credits or for more information, contact me on Telegram: [@thepythoncode97](https://t.me/thepythoncode97)
 
 
 ## Note:
